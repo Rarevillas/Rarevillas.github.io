@@ -6,7 +6,7 @@ Making a website is pretty new, but its been pretty fun so far
 
 Oh yes, I need to start with introductions!
 
-My name is Rafael and today I would like to talk about some of my favorite greek heroes and their stories!
+My name is Rafael and today I would like to talk about some of my favorite greek heroes and gods their stories!
 
 One of my favorite things to do to pass the time is to read about stories of other  mythologies heroes and gods
 
@@ -27,3 +27,4 @@ Now this one is a classic, Perseus needed Medusa's head in order to stop other m
 
 
 
+Aphrodites
