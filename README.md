@@ -27,4 +27,14 @@ Now this one is a classic, Perseus needed Medusa's head in order to stop other m
 
 
 
-Aphrodites
+# Aphrodite's Birth
+
+![image](https://user-images.githubusercontent.com/118244182/203224593-25099735-1d37-45ea-af35-f0d3b7dfc2bd.png)
+
+
+Now the thing I love about this story is that there are 2 ways to read this and one of them is really strange, some would find it a bit gross as well so of course I'm gonna go over that one first since it is my favorite.
+
+
+#1. Sea foam
+
+Now the story goes that a woman was born due to Cronus castrating his father Uranus and throwing his testicles into the waters of Cyprus, and from the Sea foam emerged a beautiful adult woman who came with the name "Aphrodite" Now although this was a short story it still keeps me intrigued for some odd reason.
